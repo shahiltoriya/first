@@ -1,1 +1,1 @@
-Hii i am Shahil toriya and i am a Web Developer
+Hey, I am Shahil Toriya. Now I am looking for a job in Web development and Digital marketing.  
